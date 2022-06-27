@@ -1,1 +1,1 @@
-Killerbunny waarom moest ik die intro maken van jouw?!?!?!?!?
+NEE het was grappig!!!
